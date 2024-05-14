@@ -2,9 +2,9 @@
 - 👀 I’m interested in cake
 - 🌱 I’m currently learning anything that Alura is teaching me.
 - 💞️ I’m looking to collaborate on world destruction
-- 📫 How to reach me ...
+- 📫 How to reach me: just talk to me, use your imagination!
 - 😄 Pronouns: any
-- ⚡ Fun fact: if you stare for too long at the dark, it will look back at you.
+- ⚡ Fun fact: light takes 8 minutes to reach the earth from the sun.
 
 <!---
 AndreVictor31/AndreVictor31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
