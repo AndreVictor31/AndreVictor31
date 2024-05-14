@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @AndreVictor31
-- 👀 I’m interested in cake
-- 🌱 I’m currently learning anything that Alura is teaching me.
-- 💞️ I’m looking to collaborate on world destruction
-- 📫 How to reach me: just talk to me, use your imagination!
-- 😄 Pronouns: any
-- ⚡ Fun fact: light takes 8 minutes to reach the earth from the sun.
+- Olá, meu nome é André, sou do segundo ano A. :)
+- espero criar muitas coisas divertidas e engraçadas nesse site, junto de meus amigos do zapzap!
+
+-eu gosto de bolo 🎂, gatos 🐱, e destruição mundial! 💥💥💥
 
 <!---
 AndreVictor31/AndreVictor31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
