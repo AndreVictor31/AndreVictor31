@@ -1,5 +1,6 @@
  ⌜———————————————————————————————————————————————————⌝
-│- espero criar muitas coisas divertidas e engraçadas nesse site, junto de meus amigos!
+
+│- meu nome é André, e espero criar muitas coisas divertidas e engraçadas nesse site, junto de meus amigos!
 
 │- uma amiguinha minha é a @BravinBeatriz , olhem o perfil dela!!
 
