@@ -11,6 +11,8 @@
 AndreVictor31/AndreVictor31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+![image](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/500ed19a-5f45-441a-bb3b-16ea29a9cdf1)
+
 ![realistic-computer-drawing-of-a-cat-png](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/5a465e7a-27ef-4aff-9c8b-0ec702f54c2c)
 ![cow](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/a932b922-eb0e-40e2-ac2d-4c1a8a65987a)
 
