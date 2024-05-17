@@ -2,7 +2,7 @@
 
 │- meu nome é André, e espero criar muitas coisas divertidas e engraçadas nesse site, junto de meus amigos!
 
-│- uma amiguinha minha é a @BravinBeatriz , olhem o perfil dela!!
+│- uma amiguinha minha é a @Petauro , olhem o perfil dela!!
 
 │- eu gosto de bolo 🎂, gatos 🐱, e destruição mundial! 💥💥💥
 
