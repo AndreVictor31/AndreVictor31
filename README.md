@@ -4,7 +4,7 @@
 
 │- uma amiguinha minha é a @Petauro , olhem o perfil dela!!
 
-│- eu gosto de bolo 🎂, gatos 🐱, e destruição mundial! 💥💥💥
+│- eu gosto de bolo 🎂, raposas do ártico 🦊❄️, e destruição mundial! 💥💥💥
 
  ⌞—————————————————————————————————————————————————————————
 <!---
