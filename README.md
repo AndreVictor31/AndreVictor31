@@ -13,8 +13,7 @@ You can click the Preview link to take a look at your changes.
 --->
 ![rainbow-line](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/16e0206d-aa8d-4e63-bd29-59d692e9d7f4)
 
-/>![image](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/b09ef97b-4d86-4283-abf4-4881d314d8d4)
-
+![image](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/b09ef97b-4d86-4283-abf4-4881d314d8d4)
 ![cow](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/a932b922-eb0e-40e2-ac2d-4c1a8a65987a)
 
 ![rainbow-line](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/2a228a62-a103-4bda-a55c-11b3acbb3edf)
