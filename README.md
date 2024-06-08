@@ -4,7 +4,7 @@
 
  ⌜—————————————————————————————————————————————————————————
 
-│- meu nome é André, e espero criar muitas coisas [color=#ff0000]d[/color][color=#e54b19]i[/color][color=#cc8f33]v[/color][color=#b2c74c]e[/color][color=#99ed66]r[/color][color=#7ffe7f]t[/color][color=#66f899]i[/color][color=#4cdcb2]d[/color][color=#33accc]a[/color][color=#196ce5]s[/color] e engraçadas nesse site, junto de meus amigos!
+│- meu nome é André, e espero criar muitas coisas divertidas e engraçadas nesse site, junto de meus amigos!
 
 │- uma amiguinha minha é a @Petauro , olhem o perfil dela!!
 
