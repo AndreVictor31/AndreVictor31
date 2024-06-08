@@ -1,5 +1,5 @@
-[<a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/blinkiesCafe-badge.gif' alt='blinkies.cafe | make your own blinkies!'></a>
-](https://blinkies.cafe/b/display/0068-mainframe.gif)
+![blinkiesCafe-aa](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/3bda2799-d45d-49e5-b237-70ade95d6c62)
+
  ⌜—————————————————————————————————————————————————————————
 
 │- meu nome é André, e espero criar muitas coisas divertidas e engraçadas nesse site, junto de meus amigos!
