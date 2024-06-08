@@ -1,9 +1,13 @@
 ![blinkiesCafe-j7](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/ccb93a8f-7b44-4798-a63c-1b022dc7634d)
 
 ![blinkiesCafe-O4](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/d6e10323-113e-451f-bfe5-0aa765b39a20)
-
+|
+|
+|
+|
 
 ![ooo hacker](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/1c24a455-d652-47a1-b0ef-5f3fff60423f)
+
  ⌜—————————————————————————————————————————————————————
 
 │- meu nome é André, e espero criar muitas coisas divertidas e engraçadas nesse site, junto de meus amigos!
