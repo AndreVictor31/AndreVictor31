@@ -2,15 +2,15 @@
 
 ![blinkiesCafe-O4](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/d6e10323-113e-451f-bfe5-0aa765b39a20)
 
-|Loading 20%
+|Loading 20%...
 
-|Loading 40%
+|Loading 40%...
 
-|Loading 60%
+|Loading 60%...
 
-|Loading 80%
+|Loading 80%...
 
-|Loading 90%
+|Loading 90%...
 
 |Loading complete!
 
