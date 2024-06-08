@@ -4,7 +4,6 @@
 
 
 ![ooo hacker](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/1c24a455-d652-47a1-b0ef-5f3fff60423f)
-
  ⌜—————————————————————————————————————————————————————
 
 │- meu nome é André, e espero criar muitas coisas divertidas e engraçadas nesse site, junto de meus amigos!
