@@ -4,7 +4,7 @@
 
  ⌜—————————————————————————————————————————————————————————
 
-│- meu nome é André, e espero criar muitas coisas divertidas e engraçadas nesse site, junto de meus amigos!
+│- meu nome é André, e espero criar muitas coisas <a href="https://www.glitter-graphics.com" style="text-decoration: none"><font color=#ff0000>d</font><font color=#e54b19>i</font><font color=#cc8f33>v</font><font color=#b2c74c>e</font><font color=#99ed66>r</font><font color=#7ffe7f>t</font><font color=#66f899>i</font><font color=#4cdcb2>d</font><font color=#33accc>a</font><font color=#196ce5>s</font></a> e engraçadas nesse site, junto de meus amigos!
 
 │- uma amiguinha minha é a @Petauro , olhem o perfil dela!!
 
