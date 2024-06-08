@@ -2,6 +2,7 @@
 
 ![blinkiesCafe-O4](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/d6e10323-113e-451f-bfe5-0aa765b39a20)
 
+![blinkiesCafe-j7](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/7d94e9bf-5e12-4903-ba5a-9fe5bd3ca95f)
 
  ⌜—————————————————————————————————————————————————————
 
@@ -12,6 +13,8 @@
 │- eu gosto de bolo 🎂, raposas do ártico 🦊❄️, e destruição mundial! 💥💥💥
 
  ⌞—————————————————————————————————————————————————————
+
+![blinkiesCafe-j7](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/ac1b6e18-3dfb-4da2-8d88-0398fb57773e)
 
 <!---
 AndreVictor31/AndreVictor31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
