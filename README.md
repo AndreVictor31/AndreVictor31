@@ -1,3 +1,5 @@
+<a href='https://blinkies.cafe' target='_blank'><img src='https://blinkies.cafe/b/display/blinkiesCafe-badge.gif' alt='blinkies.cafe | make your own blinkies!'></a>
+
  ⌜—————————————————————————————————————————————————————————
 
 │- meu nome é André, e espero criar muitas coisas divertidas e engraçadas nesse site, junto de meus amigos!
