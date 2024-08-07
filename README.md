@@ -1,6 +1,4 @@
-![blinkiesCafe-cE](https://github.com/user-attachments/assets/6c4230a2-483c-40bb-9cee-1a6c2c041de9)
-
-![blinkiesCafe-O4](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/d6e10323-113e-451f-bfe5-0aa765b39a20)
+![blinkiesCafe-5y (1)](https://github.com/user-attachments/assets/1092fff4-e570-432f-8ceb-7168fb41e8c0)
 
 |Loading 20%...
 
