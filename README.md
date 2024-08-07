@@ -1,4 +1,4 @@
-![blinkiesCafe-j7](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/ccb93a8f-7b44-4798-a63c-1b022dc7634d)
+![blinkiesCafe-cE](https://github.com/user-attachments/assets/6c4230a2-483c-40bb-9cee-1a6c2c041de9)
 
 ![blinkiesCafe-O4](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/d6e10323-113e-451f-bfe5-0aa765b39a20)
 
