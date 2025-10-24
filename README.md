@@ -22,6 +22,8 @@
 
 │- eu gosto de bolo 🎂, raposas do ártico 🦊❄️, e destruição mundial! 💥💥💥
 
+|- conta criada para projetos do Alura na escola
+
  ⌞—————————————————————————————————————————————————————
 ![ooo hacker](https://github.com/AndreVictor31/AndreVictor31/assets/169856691/ff34de38-9404-4ac4-a1fb-ce105d134fec)
 
